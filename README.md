@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TRAF1C
+- 👀 I am interested in creating video games, creating graphics, plot, code. For me, as a person with a rich imagination, it is very interesting to do this.
+- 🌱 I am currently studying programming and game creation. I'm starting with the Unity engine
+- 💞️ I want to collaborate further with people with similar interests and work together on projects.
+- 📫 How to contact me. You can contact me via email etherhight@internet.ru or via the Vkontakte social network - vk.com/traficmaurer.
